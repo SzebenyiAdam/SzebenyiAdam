@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **some fun projects**
 
-- 📫 How to reach me **adam.szebenyi@gmail.com**
+- 📫 You can reach me in my email address **adam.szebenyi@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
